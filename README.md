@@ -8,7 +8,7 @@ Estou utilizando o github pela primeira vez
 
 Sou estudante 🙃
 
-![](https://media.tenor.com/Gz408T11T8gAAAAj/wiggle-cat-wiggle.gif)
+![](https://media.tenor.com/nisaHYy8yAYAAAAM/besito-catlove.gif)
 
 
 
