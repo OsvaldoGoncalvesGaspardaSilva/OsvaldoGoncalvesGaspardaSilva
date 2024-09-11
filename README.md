@@ -8,6 +8,8 @@ Estou utilizando o github pela primeira vez
 
 Sou estudante 🙃
 
+![](https://media.tenor.com/eRGU5l2v-_wAAAAj/cat-meme.gif)
+
 
 
 
